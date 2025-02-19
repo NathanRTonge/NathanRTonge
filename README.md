@@ -1,2 +1,2 @@
 The Github account of Nathan Tonge.
-Student at Bath University studying Physics.
+1st year undergraduate student at Bath University studying Physics.
